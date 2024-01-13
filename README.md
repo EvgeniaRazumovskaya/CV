@@ -2,7 +2,7 @@
 
 Мое резюме:
 
-[CV_Razumovskaya.pdf](https://github.com/EvgeniaRazumovskaya/CV/files/13905147/CV_Razumovskaya.pdf)
+[CV_Razumovskaya.pdf](https://drive.google.com/file/d/1dBznHq_GkiDs5o12UffcElbWuv9mZrEz/view?usp=sharing)
 
 
 
